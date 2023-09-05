@@ -12,7 +12,8 @@ Nommez deux emplois.
 ingénieur informatique et illustrateur 3D
 ### Identification
 Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
-
+HackSmith Industries. J'ai toujours était faciné par leur traville et leurs projets est vraiment variée.
+Jason Blundell. Il a littéralement crée le «Heather story line» je trouve que c'est une des meilleurs histoire et la complexcité qui viens avec et à s'arracher les cheuveux (Au bon sens).
 ### Dans 5 ans
 Où vous voyez-vous dans 5 ans? 
 je me verrais travailler dans une compagnie pour qui je travaille de chez moi. je pourrais vivre dans d'autre endroit sans peur de ne pas pouvoir travailler. si je vais voyager un un millieu sans internet, je pourrais tout simplement avoir un satellite StarLink.
