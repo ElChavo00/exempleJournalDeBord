@@ -9,11 +9,12 @@ j'ai bien aimer la conference, car il avait plusieurs information que je ne sava
 
 ### Clarté de la conférence (Entre 1 et 2 lignes)
 Comment avez-vous trouvé la clarté de la conférence? Est-ce que les idées étaient claires et concise?
-
+je trouve qu'elle était assez claire dans sa presentation. Elle nous a donner les compagnie ou voir pour trouver un stage et expliquer se que sa donnais comme résulta.
 ### Structure de la conférence (Entre 1 et 2 lignes)
 Comment avez-vous trouvé la clarté de la conférence? Est-ce que le développement était logique?
+c'était assez logique se qu'elle expliquait. chaque information qu'elle nous a donner avait des liens dans son power point pour qu'on consulte l'information.
 
 ### Qualité visuelle (Entre 1 et 2 lignes)
 Comment avez-vous trouvé la qualité visuelle de la conférence?Est-ce que l'esthétisme était de qualité?
-
+Son power point était clair et facile a suivre. Avec tout les liens pour tenir se qu'elle dissait. c'était bien présenté d'étape en étape. je trouve que sa nous a beaucoup aider pour suivre sa présentation.
 
